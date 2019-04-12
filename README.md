@@ -14,3 +14,7 @@
 - You come to love not by finding the perfect person, but by seeing an imperfect person perfectly.
 
   爱，不是寻找一个完美的人。而是学会用完美的眼光，去欣赏那个不完美的人。
+
+- Never give up on something you love.
+
+  绝不要放弃你热爱的事。
