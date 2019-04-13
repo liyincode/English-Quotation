@@ -18,3 +18,19 @@
 - Never give up on something you love.
 
   绝不要放弃你热爱的事。
+
+- Bad times make a good man.
+
+  艰难困苦出能人
+
+- If we don't have the gats to try anything, what's the meaning of life.
+
+  如果我们任何事情都没有勇气去尝试，人生还有什么意义。
+
+- Where we love is home - home that our feet may leave, but not our hearts.
+
+  家，是我们情之所系的地方 -- 虽只身在外，担心仍在。
+
+-  A mother's love never changes.
+
+  母爱永恒。
