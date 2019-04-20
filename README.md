@@ -31,7 +31,7 @@
 
   家，是我们情之所系的地方 -- 虽只身在外，担心仍在。
 
--  A mother's love never changes.
+- A mother's love never changes.
 
   母爱永恒。
 
@@ -50,3 +50,11 @@
 - Everything you've ever wanted is on the other side of fear.
 
   走出恐惧，就可以获得你想要的一切。
+
+- The best relationship is when you two can act like lovers and best friends.
+
+  最好的关系就是你们既是恋人，又是最好的朋友。
+
+- Laughter is timeless, imagination has no age, and dreams are foreever.
+
+  笑容永不过时，想象力不分年龄，梦想永不终结。
