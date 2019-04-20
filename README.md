@@ -34,3 +34,19 @@
 -  A mother's love never changes.
 
   母爱永恒。
+
+- Excuses are the rocks where our dreams are crushed.
+
+  借口就是碾碎我们梦想的石头。
+
+- I never dreamed for success. I worked for it.
+
+  我从不梦想成功，我努力获得成功。
+
+- Love's tongue is in the eyes.
+
+  爱情的话语全在双眼之中。
+
+- Everything you've ever wanted is on the other side of fear.
+
+  走出恐惧，就可以获得你想要的一切。
