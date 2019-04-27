@@ -58,3 +58,27 @@
 - Laughter is timeless, imagination has no age, and dreams are foreever.
 
   笑容永不过时，想象力不分年龄，梦想永不终结。
+
+- I talked about love, the longest is narcissistic, I love myself, without a rival.
+
+  我谈过最长的恋爱，就是和我自己，我爱我自己，无人能及。
+
+- No matter how hard the past is, you can always begin again.
+
+  不管过去有多吗困难，你都可以重新开始。
+
+- It is impossible to win the great prizes in life without running risks.
+
+  不冒险，怎么能赢得人生中的种种精彩。
+
+- Many eyes go through the meadow, but few see the flowers.
+
+  很多人眺望草地，那只有少数人看到花朵。
+
+- A friend in need is a friend indeed.
+
+  患难见真情
+
+- No pains, No gains.
+
+  一分耕耘，一分收获。
