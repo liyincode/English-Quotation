@@ -82,3 +82,31 @@
 - No pains, No gains.
 
   一分耕耘，一分收获。
+  
+- A man is not old until his regrets take place of his dreams
+
+  只有当遗憾取代了梦想，人才算老。
+
+- Difficulties strenthen the mind, as labor does the body.
+
+  困难磨练心智，如同劳动锻炼身体。
+
+- Suspicion is the poision of friendship.
+
+  怀疑是对友谊所下的毒药。
+
+- If you fail to prepare, you're prepared to fail.
+
+  不备而战，不战而败。
+
+- Family: we may not have it all together, but together we have it all.
+
+  家人就是：也许我们不能常常在一起，但在一起时我们就有了全世界。
+
+- To remember, to let go, and to move on.
+
+  铭记，释怀，然后继续前行。
+
+- A true friend sees the first tear, catches the second and stops the third.
+
+  真正的朋友会立马看到你眼里的第一颗泪，接住第二颗泪，然后不再让你流泪。
