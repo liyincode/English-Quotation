@@ -110,3 +110,23 @@
 - A true friend sees the first tear, catches the second and stops the third.
 
   真正的朋友会立马看到你眼里的第一颗泪，接住第二颗泪，然后不再让你流泪。
+  
+- Love your parents and treat them with loving care for you will only know their value when you see their empty chair.
+
+  爱你的父母，好好照顾他们。否则当你看到他们的空椅子时，才能意识到它们对你来说究竟多重要。
+
+- The human race has one really effective weapon, and that is laughter.
+
+  人类有一件真正的武器，那就是笑。
+
+- To the world you may be one person, but to one person you may be the world.
+
+  对于世界来说，你只是只身一人，但对某人来说，你就是整个世界。
+
+- Being on sea, sail; being on land, settle.
+
+  随遇而安。
+
+- There is no rayal road to learning.
+
+  求知无坦途。
